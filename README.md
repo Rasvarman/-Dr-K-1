@@ -14,5 +14,8 @@
 ![Screenshot_30](https://github.com/user-attachments/assets/5a4837c3-83af-4011-905a-823afd714a6e)
 ![Screenshot_31](https://github.com/user-attachments/assets/2bd9cb30-4c61-4261-ac20-96087401b679)
 
+![Screenshot_23](https://github.com/user-attachments/assets/540eb7c5-7432-4c73-88ba-ba1a1f381ac0)
+
 
 Задание 2
+
